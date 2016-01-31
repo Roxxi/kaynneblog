@@ -1,0 +1,44 @@
+---
+author: Roxxi
+comments: true
+date: 2009-05-26 08:48:31+00:00
+layout: post
+published: false
+slug: list
+title: List
+wordpress_id: 98
+categories:
+- Dream Board
+tags:
+- Dreamboard
+---
+
+A dancer.
+A martial artist.
+A poet.
+A maker of AMVs.
+A swimmer.
+
+Japan
+France
+Italy
+Germany
+Spain
+Chile
+Nazca
+Hong Kong
+Ankor Wat
+Easter Island
+Great wall of China
+Pyramids of Egypt
+Greecian temples
+The islands in the Aegean
+
+Vancouver
+New York
+Washington DC
+Grand Canyon
+Yellowstone
+Montana
+Chicago
+

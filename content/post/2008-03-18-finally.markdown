@@ -1,0 +1,19 @@
+---
+author: Roxxi
+comments: true
+date: 2008-03-18 17:35:22+00:00
+layout: post
+published: false
+slug: finally
+title: Finally!
+wordpress_id: 5
+tags:
+- Blog
+- Frustration
+- MySQL
+- Technology
+---
+
+After all this time, I was finally able to get my blog up and running. Not only did leopard change all default configurations of everything, but this stupid blog software didn't have it's own decency to create it's own database.  It only took me about 3 weeks to discover which 2 innocuous looking steps I was missing.
+
+*sigh* Now to start building all this up.
