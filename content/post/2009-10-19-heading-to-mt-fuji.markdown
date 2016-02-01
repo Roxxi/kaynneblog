@@ -35,7 +35,7 @@ About half way there we started catching glimpses of Mt. Fuji on the train, way 
 
 Fuji at the Train Station. Got to love the Fuji Painted train right in front of it.
 
-[caption id="attachment_402" align="aligncenter" width="300" caption="Mt Fuji, right off the Train!"]![Mt Fuji, right off the Train!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0002-300x199.jpg)[/caption]
+[caption id="attachment_402" align="aligncenter" width="300" caption="Mt Fuji, right off the Train!"]![Mt Fuji, right off the Train!](/img/2009/10/DSC_0002-300x199.jpg)[/caption]
 
 It was hilarious, the station was all done up in Swiss Alps style decoration.  In side the station there was a plaque explaining that the station is a replica of one at the Matterhorn in Switzerland.  Oh Strange Japanese Euro-fetish~
 
@@ -75,8 +75,8 @@ We then went down stairs to find the girls in the lobby, heading out to 7-eleven
 
 We headed downstairs to the "common area" which, not shown in the picture below, looked like half like a senior citizen recreation center, and half like a japanese room.  They even had Kiminos for us to try on for fun and take pictures! How nice of them!
 
-![DSC_0006](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0006-300x199.jpg)
-![DSC_0007](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_00071-300x199.jpg)
+![DSC_0006](/img/2009/10/DSC_0006-300x199.jpg)
+![DSC_0007](/img/2009/10/DSC_00071-300x199.jpg)
 
 Time for a drinking game, ah, what drinking game to play? We didn't have cards, or dice, or anything like that, so I taught them the hand slapping game I learned from those spanish guys I always mention in London.  Even with only four of us it was still pretty challenging, but particularly so for Duilia, who was definitely winning the race on drinking her beer.  She wanted to change games, because this one was too hard.  Before switching to another drinking game, I started teaching them the cup game.  They really got into it (as most non band people do :) ) and we were having fun doing that for a little bit.  Sadly, that wasn't much of a drinking game.
 
@@ -84,10 +84,10 @@ Down in this little rec room, all we had were 2 games that had japanese instruct
 
 [caption id="attachment_408" align="aligncenter" width="199" caption="Tristan, Jen, Duilia, and Alex for the Kawaguchiko Sake Cup Gold!"]
 
-![DSC_0014](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0014-199x300.jpg)
-![DSC_0024](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_00241-199x300.jpg)
-![DSC_0043](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0043-199x300.jpg)
-![Tristan, Jen, Duilia, and Alex for the Kawaguchiko Sake Cup Gold!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0026-199x300.jpg)
+![DSC_0014](/img/2009/10/DSC_0014-199x300.jpg)
+![DSC_0024](/img/2009/10/DSC_00241-199x300.jpg)
+![DSC_0043](/img/2009/10/DSC_0043-199x300.jpg)
+![Tristan, Jen, Duilia, and Alex for the Kawaguchiko Sake Cup Gold!](/img/2009/10/DSC_0026-199x300.jpg)
 
 [/caption]
 
@@ -95,34 +95,34 @@ The game was a total blast! We were all hooting and hollering, having a really g
 
 The girls started getting me dressed up
 
-[caption id="attachment_410" align="aligncenter" width="300" caption="The ladies love me!"]![The ladies love me!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0067-300x199.jpg)[/caption]
+[caption id="attachment_410" align="aligncenter" width="300" caption="The ladies love me!"]![The ladies love me!](/img/2009/10/DSC_0067-300x199.jpg)[/caption]
 
 and once I got all suited up, I got all into it.  Duilia and I had a little sake pouring ceremony
 
-[caption id="attachment_413" align="aligncenter" width="300" caption="*high pitched asian girl voice* "Oh heehee, some nice sake for you!""]![*high pitched asian girl voice* "Oh heehee, some nice sake for you!"](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_00991-300x199.jpg)[/caption]
+[caption id="attachment_413" align="aligncenter" width="300" caption="*high pitched asian girl voice* "Oh heehee, some nice sake for you!""]![*high pitched asian girl voice* "Oh heehee, some nice sake for you!"](/img/2009/10/DSC_00991-300x199.jpg)[/caption]
 
-[caption id="attachment_414" align="aligncenter" width="300" caption="Wuzzup, bad ass geisha~"]![Wuzzup, bad ass geisha~](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_01031-300x199.jpg)[/caption]
+[caption id="attachment_414" align="aligncenter" width="300" caption="Wuzzup, bad ass geisha~"]![Wuzzup, bad ass geisha~](/img/2009/10/DSC_01031-300x199.jpg)[/caption]
 
 Then, we had a little photoshoot (I have lots of pictures of all of this, these are only a few)
 
-[caption id="attachment_415" align="aligncenter" width="199" caption="*Hee hee, issobeegg*"]![*Hee hee, issobeegg*](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0111-199x300.jpg)[/caption]
+[caption id="attachment_415" align="aligncenter" width="199" caption="*Hee hee, issobeegg*"]![*Hee hee, issobeegg*](/img/2009/10/DSC_0111-199x300.jpg)[/caption]
 
-[caption id="attachment_416" align="aligncenter" width="300" caption="So graceful!"]![So graceful!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_01131-300x199.jpg)[/caption]
+[caption id="attachment_416" align="aligncenter" width="300" caption="So graceful!"]![So graceful!](/img/2009/10/DSC_01131-300x199.jpg)[/caption]
 
 Then Jen wanted to get dressed up too!
 
-[caption id="attachment_417" align="aligncenter" width="199" caption="Helping my partner in crime get dressed!"]![Helping my partner in crime get dressed!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0126-199x300.jpg)[/caption]
+[caption id="attachment_417" align="aligncenter" width="199" caption="Helping my partner in crime get dressed!"]![Helping my partner in crime get dressed!](/img/2009/10/DSC_0126-199x300.jpg)[/caption]
 
-[caption id="attachment_418" align="aligncenter" width="300" caption="Darts make great hair ties! Thanks Duilia!"]![Darts make great hair ties! Thanks Duilia!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0138-300x199.jpg)[/caption]
+[caption id="attachment_418" align="aligncenter" width="300" caption="Darts make great hair ties! Thanks Duilia!"]![Darts make great hair ties! Thanks Duilia!](/img/2009/10/DSC_0138-300x199.jpg)[/caption]
 
 We made just cute little geisha!
 
-[caption id="attachment_419" align="aligncenter" width="199" caption="*Hee hee you likey us serve you!?*"]![*Hee hee you likey us serve you!?*](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0143-199x300.jpg)[/caption]
+[caption id="attachment_419" align="aligncenter" width="199" caption="*Hee hee you likey us serve you!?*"]![*Hee hee you likey us serve you!?*](/img/2009/10/DSC_0143-199x300.jpg)[/caption]
 
-[caption id="attachment_420" align="aligncenter" width="300" caption="*Oh, you make us laugh, ho ho ho*"]![*Oh, you make us laugh, ho ho ho*](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_01461-300x199.jpg)[/caption]
+[caption id="attachment_420" align="aligncenter" width="300" caption="*Oh, you make us laugh, ho ho ho*"]![*Oh, you make us laugh, ho ho ho*](/img/2009/10/DSC_01461-300x199.jpg)[/caption]
 
 It was all way too much fun and laughing! Here we can see Tristan having a great time!
 
-[caption id="attachment_412" align="aligncenter" width="199" caption="Hell yeaaaah..."]![Hell yeaaaah...](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0084-199x300.jpg)[/caption]
+[caption id="attachment_412" align="aligncenter" width="199" caption="Hell yeaaaah..."]![Hell yeaaaah...](/img/2009/10/DSC_0084-199x300.jpg)[/caption]
 
 We talked for an hour or so after that, about traveling, and meeting people, and just the general kind of conversations you have at 2:30 AM, until we were finally tired enough to fall fast asleep.

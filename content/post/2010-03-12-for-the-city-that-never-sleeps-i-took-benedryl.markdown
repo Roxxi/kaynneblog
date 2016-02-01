@@ -26,8 +26,8 @@ I just hope I don't get mugged D:
 
 
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2010/03/p_480_320_841C0F5C-BDD7-4135-B53F-B3E3F3CDF29D.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2010/03/p_480_320_841C0F5C-BDD7-4135-B53F-B3E3F3CDF29D.jpeg)  
+[![](/img/2010/03/p_480_320_841C0F5C-BDD7-4135-B53F-B3E3F3CDF29D.jpeg)](/img/2010/03/p_480_320_841C0F5C-BDD7-4135-B53F-B3E3F3CDF29D.jpeg)  
   
-[![](http://www.kaynne.com/blog/wp-content/uploads/2010/03/p_480_320_40B03388-B6CA-4949-A508-E76E0E44EA58.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2010/03/p_480_320_40B03388-B6CA-4949-A508-E76E0E44EA58.jpeg)  
+[![](/img/2010/03/p_480_320_40B03388-B6CA-4949-A508-E76E0E44EA58.jpeg)](/img/2010/03/p_480_320_40B03388-B6CA-4949-A508-E76E0E44EA58.jpeg)  
   
-[![](http://www.kaynne.com/blog/wp-content/uploads/2010/03/l_2048_1536_F92D153A-A115-4CA3-A7F6-80A2CBBC264E.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2010/03/l_2048_1536_F92D153A-A115-4CA3-A7F6-80A2CBBC264E.jpeg)
+[![](/img/2010/03/l_2048_1536_F92D153A-A115-4CA3-A7F6-80A2CBBC264E.jpeg)](/img/2010/03/l_2048_1536_F92D153A-A115-4CA3-A7F6-80A2CBBC264E.jpeg)

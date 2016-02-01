@@ -11,7 +11,7 @@ tags:
 - blizzcon
 ---
 
-![wall1-1024x768](http://www.kaynne.com/blog/wp-content/uploads/2009/08/wall1-1024x768-300x225.jpg)
+![wall1-1024x768](/img/2009/08/wall1-1024x768-300x225.jpg)
 Diablo 3 was pretty interesting. 
 
 The title screen was nearly the same as the diablo 2 char select screen, except that the title screen was _also_ the the character select. There were 4 classes available for selection: barbarian, wizard, monk, and ... One other, which I don't remember. What was more intersting was that you could now select your gender per class, instead of being fixed. Sadly, no female model loaded for the monk I ended up selecting.

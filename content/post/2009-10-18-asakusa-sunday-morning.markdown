@@ -34,10 +34,10 @@ Around 9:30 all four of us ended up waking up, and we decided we'd head out for 
 After getting dressed, we headed out back to Asakusa's little open air market area at the main temple there (I'll fill in the name later). Today the market place was totally bussling, and it seemed that there was some ceremony going on today at the shrine there.  As we were walking down the main drag, about to look for food, all of a sudden we notice that a procession is coming down the street.
 
 It wasn't a big parade or anything, but there were guys with a big golden dragon coming down the road, and a cart full of geisha, playing live music, with a group of men hitting drums and cymbals behind them.
-![DSC_0007](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0007-199x300.jpg)
-![DSC_0022](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0022-300x199.jpg)
-![DSC_0024](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0024-300x199.jpg)
-![DSC_0025](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0025-199x300.jpg)
+![DSC_0007](/img/2009/10/DSC_0007-199x300.jpg)
+![DSC_0022](/img/2009/10/DSC_0022-300x199.jpg)
+![DSC_0024](/img/2009/10/DSC_0024-300x199.jpg)
+![DSC_0025](/img/2009/10/DSC_0025-199x300.jpg)
 
 The music was rather classical sounding, an really pretty, and everyone was taking pictures and watching.  Seemed we picked a good weekend- it just so happened to be Asakusa's birthday weekend! Happy Birthday Asakusa! And, go us for picking a place at random and ending up at a party :).  There were plenty of kids' games that were set up, lots of fair food, and people visiting the shrines, and giving offerings. It was a beautiful day, and everyone was just out enjoying the sun.  It was just like anime! It was pretty cool. We wanted to stay longer, but our hunger was nagging us.
 
@@ -47,7 +47,7 @@ So, anyway, I convinced everyone to just give it a try, and the owner of the sho
 
 They turned the gas on underneath the griddle on our table, letting it get hot. They soon brought out a small of vegetables in some liquid, and began mixing them at our table. They then poured some oil and brushed the griddle, and dumped the contents on to it.  They shaped it in to a nice circle, after mixing it some and cutting up the bigger clumps. Then once one side started to cook, they flipped it over and cooked the other side.  It was fun having them cook at the table. We were kind of surprised.
 
-[caption id="attachment_349" align="aligncenter" width="300" caption="Okonomiyaki!"]![Okonomiyaki!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0034-300x199.jpg)[/caption]
+[caption id="attachment_349" align="aligncenter" width="300" caption="Okonomiyaki!"]![Okonomiyaki!](/img/2009/10/DSC_0034-300x199.jpg)[/caption]
 
 Though it was small, in the end (probably 6" in diameter) it was quite tasty, and we ate it hungrily.
 
@@ -59,25 +59,25 @@ Anyhow, after our find dining experience, Alex and Max needed to check out of ou
 
 After splitting up, Tristan and I decided to go check out the fair a bit before getting down to business. The fair as packed! If you look at my blog entry from the first night, you'll see a giant gate, area that was mostly open- well… now it was completely full with people!
 
-[caption id="attachment_350" align="aligncenter" width="300" caption="Looks like the party started!"]![Looks like the party started!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_00371-300x199.jpg)[/caption]
+[caption id="attachment_350" align="aligncenter" width="300" caption="Looks like the party started!"]![Looks like the party started!](/img/2009/10/DSC_00371-300x199.jpg)[/caption]
 
 I wanted to try some fair food item, even though we were full now.  I saw chocolate covered banana's earlier, and that sounded rather good.  Tristan and I each got one (though I got one covered with strawberry substance), they were pretty great :)
 
-[caption id="attachment_351" align="aligncenter" width="300" caption="I love me some pink banana! *Nom nom nom* ... or Two in the pink ..."]![I love me some pink banana! *Nom nom nom*](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0038-300x199.jpg)[/caption]
+[caption id="attachment_351" align="aligncenter" width="300" caption="I love me some pink banana! *Nom nom nom* ... or Two in the pink ..."]![I love me some pink banana! *Nom nom nom*](/img/2009/10/DSC_0038-300x199.jpg)[/caption]
 
-[caption id="attachment_352" align="aligncenter" width="300" caption="... one in the... well, I think you can tell where based on the expression on Tristan\'s face..."]![... one in the... well, I think you can tell where based on the expression on Tristan's face...](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_00411-300x199.jpg)[/caption]
+[caption id="attachment_352" align="aligncenter" width="300" caption="... one in the... well, I think you can tell where based on the expression on Tristan\'s face..."]![... one in the... well, I think you can tell where based on the expression on Tristan's face...](/img/2009/10/DSC_00411-300x199.jpg)[/caption]
 
 After getting our dessert, we walked around some, and looked at the people at the shrines, buying charms, making offerings and saying prayers.  We found a little bridge with a koi pond below, and I took some pictures of the small statues and koi around it.
 
-![DSC_0042](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0042-199x300.jpg)
-![DSC_0044](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0044-300x199.jpg)
-![DSC_0045](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0045-300x199.jpg)
-![DSC_0053](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0053-199x300.jpg)
+![DSC_0042](/img/2009/10/DSC_0042-199x300.jpg)
+![DSC_0044](/img/2009/10/DSC_0044-300x199.jpg)
+![DSC_0045](/img/2009/10/DSC_0045-300x199.jpg)
+![DSC_0053](/img/2009/10/DSC_0053-199x300.jpg)
 
 We then walked out behind the fair area, and found a statue of a man dressed as a samurai, who apparently was a great actor, so much so, they made a larger than life size statue of him.
 
-![DSC_0055](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0055-300x199.jpg)
-![DSC_0058](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0058-300x199.jpg)
+![DSC_0055](/img/2009/10/DSC_0055-300x199.jpg)
+![DSC_0058](/img/2009/10/DSC_0058-300x199.jpg)
 
 After that, we decided to get back to the hostel and get down to business.  
 

@@ -18,7 +18,7 @@ It was around 9 o'clock when Tristan and I woke up, got ready, and left the host
 So, how did it work? Well, there's all the fake food outside, like most places, and each item has a number by the food. Sounds easy, right? Just go in and ask for the number? Well... it was even easier! You just walked to a vending machine right next to the restaurant, put the coins in, and pushed a number that corresponded to the food you wanted.  You then got a ticket, that you took inside the restaurant, handed to the woman, and she prepared your food! Itadakimas!
 
 Here are our first meals, mine and Tristan's!
-[caption id="attachment_214" align="aligncenter" width="225" caption="My First Meal in Japan!"]![My First Meal in Japan!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/A_240-225x300.jpg)[/caption]
-[caption id="attachment_214" align="aligncenter" width="225" caption="Tristan's First Meal in Japan!"]![IMG_0114](http://www.kaynne.com/blog/wp-content/uploads/2009/10/A_241-225x300.jpg)[/caption]
+[caption id="attachment_214" align="aligncenter" width="225" caption="My First Meal in Japan!"]![My First Meal in Japan!](/img/2009/10/A_240-225x300.jpg)[/caption]
+[caption id="attachment_214" align="aligncenter" width="225" caption="Tristan's First Meal in Japan!"]![IMG_0114](/img/2009/10/A_241-225x300.jpg)[/caption]
 
 Yaaay! We did it! We found food!

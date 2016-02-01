@@ -21,15 +21,15 @@ We started off a typical evening once again, with our fear of communication comp
 
 The first thing we did is go to the HUGE electronics store I posted pictures of last night. I tried to get pictures with Tristan and I infront of it so you could appreciate how huge this store was, and yes, they sold nothing but electronics.
 
-[caption id="attachment_381" align="aligncenter" width="199" caption="Huuuge Store! 8 Floors of fun!"]![Huuuge Store! 8 Floors of fun!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0066-199x300.jpg)[/caption]
-[caption id="attachment_382" align="aligncenter" width="199" caption="I\'m infront of the huge store!"]![I'm infront of the huge store!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0080-199x300.jpg)[/caption]
-[caption id="attachment_383" align="aligncenter" width="199" caption="Tristan likes this beer!"]![Tristan likes this beer!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0082-199x300.jpg)[/caption]
+[caption id="attachment_381" align="aligncenter" width="199" caption="Huuuge Store! 8 Floors of fun!"]![Huuuge Store! 8 Floors of fun!](/img/2009/10/DSC_0066-199x300.jpg)[/caption]
+[caption id="attachment_382" align="aligncenter" width="199" caption="I\'m infront of the huge store!"]![I'm infront of the huge store!](/img/2009/10/DSC_0080-199x300.jpg)[/caption]
+[caption id="attachment_383" align="aligncenter" width="199" caption="Tristan likes this beer!"]![Tristan likes this beer!](/img/2009/10/DSC_0082-199x300.jpg)[/caption]
 
 We spent a good hour walking around in there, looking at all the computers, and video games, and anime toys, and appliances, and TVs. Each floor was like a single department in best buy, except with multiple items of the same brand, and multiple brands.  We spent 20 minutes looking at keyboards.  It was really amazing.
 
 After spending our time in there, we wandered around some more, looking for anime, manga, and anime paraphernalia. Such a great street view at night…
 
-![DSC_0096](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_00961-199x300.jpg)
+![DSC_0096](/img/2009/10/DSC_00961-199x300.jpg)
 
 Just wandering at random, we passed some radio stores that Tristan was interested in- saw lots of classic component stores, and eventually wandered through a series of stores in to a building that had anime gear! Oh man, another hour went by in there, with us drooling over figurines, posters, cards, art books, etc etc.  We decided before we left we'd come back and go shopping.
 
@@ -39,7 +39,7 @@ We then wander into the first shop, and they're selling all of the figurines! Ga
 
 After an hour of torturing ourselves looking at stuff that would easily drain our bank accounts, we forced ourselves to leave, and decided to quickly stop in Tokyo since we hadn't seen it yet at all.  Ironically Tokyo is a district in Tokyo :p. I guess they don't call Tokyo the city of endless sprawl for nothing. Right before leaving, I saw a shop that had this sign over it, and couldn't help but take a picture! Cracks me up!
 
-[caption id="attachment_385" align="aligncenter" width="300" caption="HHHAAAIII!!"]![HHHAAAIII!!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0099-300x199.jpg)[/caption]
+[caption id="attachment_385" align="aligncenter" width="300" caption="HHHAAAIII!!"]![HHHAAAIII!!](/img/2009/10/DSC_0099-300x199.jpg)[/caption]
 
 Hah, 3 days in Tokyo and we finally made it to Toyko! In Tokyo, the station was just as insane as it was in Shinjuku and Akihabara- however typically when it's nuts in the station, that usually means it's not as busy up top.  In Tokyo this was more than true. It was a total ghost town.  The streets in Tokyo were huge, all of them were several lanes wide. The sidewalks, the buildings, the decortication- all of it was amazing. Super clean, super modern, super chic.  It was just so serene- and the total lack of people gave it quite the etherial like quality.  
 

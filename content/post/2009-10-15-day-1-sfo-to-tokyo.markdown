@@ -23,6 +23,6 @@ Yay, the flight attendant is fading is the emergency infomation on Japanese, sou
 I added some pictures of our inflight menu- I love that the last ameicanish meal I may have includes cheesy grits. They gave us free headphones too! (yeah Bryan, I know I already paid for them :-p)
 
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/10/p_2048_1536_9BB040C1-00B3-4651-AF73-B3D4359E7AD7.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/10/p_2048_1536_9BB040C1-00B3-4651-AF73-B3D4359E7AD7.jpeg)  
+[![](/img/2009/10/p_2048_1536_9BB040C1-00B3-4651-AF73-B3D4359E7AD7.jpeg)](/img/2009/10/p_2048_1536_9BB040C1-00B3-4651-AF73-B3D4359E7AD7.jpeg)  
   
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/10/p_2048_1536_F4AB47EE-183B-4E16-9A9B-30FC989B80A3.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/10/p_2048_1536_F4AB47EE-183B-4E16-9A9B-30FC989B80A3.jpeg)
+[![](/img/2009/10/p_2048_1536_F4AB47EE-183B-4E16-9A9B-30FC989B80A3.jpeg)](/img/2009/10/p_2048_1536_F4AB47EE-183B-4E16-9A9B-30FC989B80A3.jpeg)

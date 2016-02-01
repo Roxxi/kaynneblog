@@ -20,42 +20,42 @@ As we set out for our tour, we found out that he's a chef at the Hyatt in Vancou
 
 We went to the Museum at Peace Memorial Park! Wow… depressing, and scary, and amazing.  Seeing so much footage, getting to read real documents about the bomb being dropped from the US government, seeing interviews with survivors, learning about the devastating effects of the radiation, how the bomb explodes, touching tiles, and seeing artifacts and remains that people found of their loved ones and families… it was all so over whelming.  We easily spent 3 hours going through the museum, reading every sign and plaque, looking at everything in there.  It really was a lot.
 
-[caption id="attachment_471" align="aligncenter" width="400" caption="The A-Bomb Dome"]![The A-Bomb Dome](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_00012-400x265.jpg)[/caption]
+[caption id="attachment_471" align="aligncenter" width="400" caption="The A-Bomb Dome"]![The A-Bomb Dome](/img/2009/10/DSC_00012-400x265.jpg)[/caption]
 
-[caption id="attachment_477" align="aligncenter" width="400" caption="Location of the bomb exploding above Hiroshima"]![Location of the bomb exploding above Hiroshima](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_00361-400x265.jpg)[/caption]
+[caption id="attachment_477" align="aligncenter" width="400" caption="Location of the bomb exploding above Hiroshima"]![Location of the bomb exploding above Hiroshima](/img/2009/10/DSC_00361-400x265.jpg)[/caption]
 
-[caption id="attachment_476" align="aligncenter" width="400" caption="This diorama exhibits what Hiroshima looked like immediately after the bombing. Crazy."]![This diorama exhibits what Hiroshima looked like immediately after the bombing. Crazy.](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0035-400x265.jpg)[/caption]
+[caption id="attachment_476" align="aligncenter" width="400" caption="This diorama exhibits what Hiroshima looked like immediately after the bombing. Crazy."]![This diorama exhibits what Hiroshima looked like immediately after the bombing. Crazy.](/img/2009/10/DSC_0035-400x265.jpg)[/caption]
 
 In the park, every monument is either a dedication to someone or a group of people who died from the bomb, a memorial dedicated to peace, a memorial dedicated to people or someone who helped relieve or rebuild hiroshima, a memorial to dedicated to peace, a memorial to someone who died from after effects of the bomb, or a memorial to peace.  Almost everything is the da-da-da Peace da-da-da.  While it may seem mundane, each site is pretty nice, immaculately groomed, and constantly refreshed with offerings.  It really shows that even now, so many years later, how much people are dedicated to the cause.  It really is a very nice park, and taking the time to check out almost every memorial is certainly worth it.
 
-[caption id="attachment_472" align="aligncenter" width="265" caption="Children\'s Memorial, spurred by the delayed onset of Leukemia that killed a girl 10 years after the bomb went off."]![Children's Memorial, spurred by the delayed onset of Leukemia that killed a girl 10 years after the bomb went off.](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0015-265x400.jpg)![DSC_0018](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0018-265x400.jpg)[/caption]
+[caption id="attachment_472" align="aligncenter" width="265" caption="Children\'s Memorial, spurred by the delayed onset of Leukemia that killed a girl 10 years after the bomb went off."]![Children's Memorial, spurred by the delayed onset of Leukemia that killed a girl 10 years after the bomb went off.](/img/2009/10/DSC_0015-265x400.jpg)![DSC_0018](/img/2009/10/DSC_0018-265x400.jpg)[/caption]
 
-[caption id="attachment_474" align="aligncenter" width="400" caption="People from all over the world fill these small display cases with Paper Cranes dedicated to the memory of these children and peace. The pieces of art in there are amazing."]![People from all over the world fill these small display cases with Paper Cranes dedicated to the memory of these children and peace. The pieces of art in there are amazing.](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0021-400x265.jpg)
-![DSC_0022](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_00221-400x265.jpg)
+[caption id="attachment_474" align="aligncenter" width="400" caption="People from all over the world fill these small display cases with Paper Cranes dedicated to the memory of these children and peace. The pieces of art in there are amazing."]![People from all over the world fill these small display cases with Paper Cranes dedicated to the memory of these children and peace. The pieces of art in there are amazing.](/img/2009/10/DSC_0021-400x265.jpg)
+![DSC_0022](/img/2009/10/DSC_00221-400x265.jpg)
 [/caption]
 
 We then headed out for lunch, where we had Hiroshima style Okonomiyaki, which apparently totally different form Tokyo/Osaka style. Holy crap it was good.  Instead of being like an omelet, it's more like a crepe with noodles, and meat and vegetables and egg! It was huge, and filling! We took some pictures! Totally amazing! It's one of Hiroshima's specialities as indicated by the tour guides we found.
 
-[caption id="attachment_478" align="aligncenter" width="400" caption="Hiroshima style Okonomiyaki! Oyshi!!"]![Hiroshima style Okonomiyaki! Oyshi!!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_00381-400x265.jpg)[/caption]
+[caption id="attachment_478" align="aligncenter" width="400" caption="Hiroshima style Okonomiyaki! Oyshi!!"]![Hiroshima style Okonomiyaki! Oyshi!!](/img/2009/10/DSC_00381-400x265.jpg)[/caption]
 
 We then headed for the ferry to Miyajima, to see the Torii gate in the ocean.  We took the JR down from Hiroshima to Miyajima, which is about 25 minutes, and found out that the Ferry is free with a JR pass! Totally awesome!
 
-[caption id="attachment_479" align="aligncenter" width="265" caption="Some Japanese tourists posing on the boat as we headed to Miyajima"]![Some Japanese tourists posing on the boat as we headed to Miyajima](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0046-265x400.jpg)[/caption]
-[caption id="attachment_482" align="aligncenter" width="265" caption="Tristan is excited about being on Miyajima!"]![Tristan is excited about being on Miyajima!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0081-265x400.jpg)[/caption]
-[caption id="attachment_483" align="aligncenter" width="265" caption="It\'s amazing, people can just leave their bags out, in the open, and there\'s little concern that anyone will steal them, here in Japan."]![It's amazing, people can just leave their bags out, in the open, and there's little concern that anyone will steal them, here in Japan.](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0083-265x400.jpg)[/caption]
+[caption id="attachment_479" align="aligncenter" width="265" caption="Some Japanese tourists posing on the boat as we headed to Miyajima"]![Some Japanese tourists posing on the boat as we headed to Miyajima](/img/2009/10/DSC_0046-265x400.jpg)[/caption]
+[caption id="attachment_482" align="aligncenter" width="265" caption="Tristan is excited about being on Miyajima!"]![Tristan is excited about being on Miyajima!](/img/2009/10/DSC_0081-265x400.jpg)[/caption]
+[caption id="attachment_483" align="aligncenter" width="265" caption="It\'s amazing, people can just leave their bags out, in the open, and there\'s little concern that anyone will steal them, here in Japan."]![It's amazing, people can just leave their bags out, in the open, and there's little concern that anyone will steal them, here in Japan.](/img/2009/10/DSC_0083-265x400.jpg)[/caption]
 
 We went over to the island to discover it's completely over run with deer, just like Nara- but unlike Nara, you're not supposed to feed the deer (or pet them or anything). I guess they're having population control problems, and the deer are becoming a hazard because of cars and what not on the island.  As such, they encourage people not to interact with them- but they're soo cute! We couldn't help but gawk at them(just like every other person we saw).
 
 
-[caption id="attachment_481" align="aligncenter" width="400" caption="Tyson being amazed at how close he could get to the deer"]![Tyson being amazed at how close he could get to the deer](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_00722-400x265.jpg)[/caption]
+[caption id="attachment_481" align="aligncenter" width="400" caption="Tyson being amazed at how close he could get to the deer"]![Tyson being amazed at how close he could get to the deer](/img/2009/10/DSC_00722-400x265.jpg)[/caption]
 
-[caption id="attachment_486" align="aligncenter" width="265" caption="Sorry, deer can\'t order here!"]![Sorry, deer can't order here!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_01261-265x400.jpg)[/caption]
+[caption id="attachment_486" align="aligncenter" width="265" caption="Sorry, deer can\'t order here!"]![Sorry, deer can't order here!](/img/2009/10/DSC_01261-265x400.jpg)[/caption]
 
 
 We took pictures of the Torii gate, and wandered around the peaceful island. It was an hour before sunset when we arrived, and it was just beautiful!  The island is extremely large (we're hoping to find a hiking trail tomorrow, changing our plans yet again), and just totally beautiful!
 
-[caption id="attachment_484" align="aligncenter" width="265" caption="The world famous Torii on Miyajima"]![The world famous Torii on Miyajima](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0102-265x400.jpg)[/caption]
-[caption id="attachment_485" align="aligncenter" width="265" caption="My rockstar pose! This is high tide!"]![My rockstar pose! This is high tide!](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_0116-265x400.jpg)[/caption]
+[caption id="attachment_484" align="aligncenter" width="265" caption="The world famous Torii on Miyajima"]![The world famous Torii on Miyajima](/img/2009/10/DSC_0102-265x400.jpg)[/caption]
+[caption id="attachment_485" align="aligncenter" width="265" caption="My rockstar pose! This is high tide!"]![My rockstar pose! This is high tide!](/img/2009/10/DSC_0116-265x400.jpg)[/caption]
 
 After the sun went down, we took the JR back to the hostel so we could drop off our stuff and find dinner.  Tyson found a new roommate in his room, Matias, who is from Italy.  We invited him to come to dinner with us, although he didn't speak much english.
 

@@ -13,7 +13,7 @@ categories:
 
 Peanut butter for all!
 
-![Peanutbutter for all!](http://www.kaynne.com/blog/wp-content/uploads/2009/02/peanut-butter-is.gif)
+![Peanutbutter for all!](/img/2009/02/peanut-butter-is.gif)
 
 10 AM Breakfast: A slice of toast with peanut butter. A fiber bar.
 

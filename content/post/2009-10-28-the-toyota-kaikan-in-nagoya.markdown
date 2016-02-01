@@ -53,7 +53,7 @@ The museum itself is awesome! It's divided in to the following sections (there a
 
 [Here's that video! (i-unit concept video)](http://www2.toyota.co.jp/en/tech/p_mobility/i-unit/postshow_b.asx) Gotta love the music! Wheee!!! Driving underwater! It's the future!!! I love flashing lights and colors! I'm a sucker.
  
-[caption id="attachment_464" align="aligncenter" width="265" caption="The i-Unit. Really, really cool vehicle. I love the streaming LEDs :)"]![The i-Unit. Really, really cool vehicle. I love the streaming LEDs :)](http://www.kaynne.com/blog/wp-content/uploads/2009/10/DSC_00011-265x400.jpg)[/caption]
+[caption id="attachment_464" align="aligncenter" width="265" caption="The i-Unit. Really, really cool vehicle. I love the streaming LEDs :)"]![The i-Unit. Really, really cool vehicle. I love the streaming LEDs :)](/img/2009/10/DSC_00011-265x400.jpg)[/caption]
 
 I recorded a demo of both, and I'm hoping to upload it soon :)
 

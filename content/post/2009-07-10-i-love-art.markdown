@@ -11,6 +11,6 @@ categories:
 - This I believe
 ---
 
-[caption id="attachment_102" align="aligncenter" width="432" caption="This is mostly interchangable with Marie Osmond"]![This is mostly interchangable with Marie Osmond](http://www.kaynne.com/blog/wp-content/uploads/2009/07/proper-palin.jpg)[/caption]
+[caption id="attachment_102" align="aligncenter" width="432" caption="This is mostly interchangable with Marie Osmond"]![This is mostly interchangable with Marie Osmond](/img/2009/07/proper-palin.jpg)[/caption]
 
 *wistful sigh*

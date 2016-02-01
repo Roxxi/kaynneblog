@@ -36,7 +36,7 @@ Ah well, it's still an adventure and spirits are pretty good. Tristan is probabl
 
 
 
-![Tristan *can* fall asleep siting up!](http://www.kaynne.com/blog/wp-content/uploads/2011/02/IMG_56971.jpg)
+![Tristan *can* fall asleep siting up!](/img/2011/02/IMG_56971.jpg)
 
 
 
@@ -51,7 +51,7 @@ I've never been in a VIP lounge before. I have to admit it's pretty nice. There'
 
 
 
-![Yum, VIP left overs](http://www.kaynne.com/blog/wp-content/uploads/2011/02/IMG_5698.jpg)
+![Yum, VIP left overs](/img/2011/02/IMG_5698.jpg)
 
 
 
@@ -66,7 +66,7 @@ It was also neat to see ads for 3.5G networks in the airport. I guess the Peruvi
 
 
 
-![3G Truth](http://www.kaynne.com/blog/wp-content/uploads/2011/02/IMG_56992.jpg)
+![3G Truth](/img/2011/02/IMG_56992.jpg)
 
 
 
@@ -76,7 +76,7 @@ Ah well. On to Santiago!
 
 
 
-![Hello from Peru](http://www.kaynne.com/blog/wp-content/uploads/2011/02/IMG_57011.jpg)
+![Hello from Peru](/img/2011/02/IMG_57011.jpg)
 
 
 

@@ -14,11 +14,11 @@ categories:
 
 Our last moment in the US! Adorable!
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/10/l_604_453_6BB3ADB8-57DC-4E7B-B560-30EA691C035F.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/10/l_604_453_6BB3ADB8-57DC-4E7B-B560-30EA691C035F.jpeg)
+[![](/img/2009/10/l_604_453_6BB3ADB8-57DC-4E7B-B560-30EA691C035F.jpeg)](/img/2009/10/l_604_453_6BB3ADB8-57DC-4E7B-B560-30EA691C035F.jpeg)
 
 And now we made it to Japan!  We landed almost an hour early!
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/10/p_480_320_56B09219-6281-4775-B21D-03F96F007131.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/10/p_480_320_56B09219-6281-4775-B21D-03F96F007131.jpeg)
+[![](/img/2009/10/p_480_320_56B09219-6281-4775-B21D-03F96F007131.jpeg)](/img/2009/10/p_480_320_56B09219-6281-4775-B21D-03F96F007131.jpeg)
 
 Let's break things up into two sections- the flight, and the first looooong moments being a total foreigner. (if my sentences are rather rambly right now, it's 2:15am SFO time.)
 
@@ -30,21 +30,21 @@ So how was the food? Well, as I mentioned walker, Tristan and I had lunch right 
 
 Here's a picture of our dinner! And our Menu! Hail the Cheesy Grits!
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/10/l_2048_1536_6959FBA5-1EAD-48BE-A4CE-0989AA7A4006.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/10/l_2048_1536_6959FBA5-1EAD-48BE-A4CE-0989AA7A4006.jpeg)
+[![](/img/2009/10/l_2048_1536_6959FBA5-1EAD-48BE-A4CE-0989AA7A4006.jpeg)](/img/2009/10/l_2048_1536_6959FBA5-1EAD-48BE-A4CE-0989AA7A4006.jpeg)
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/10/l_2048_1536_F19950FC-598B-42E3-A28E-6810E6078EFB.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/10/l_2048_1536_F19950FC-598B-42E3-A28E-6810E6078EFB.jpeg)
+[![](/img/2009/10/l_2048_1536_F19950FC-598B-42E3-A28E-6810E6078EFB.jpeg)](/img/2009/10/l_2048_1536_F19950FC-598B-42E3-A28E-6810E6078EFB.jpeg)
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/10/l_2048_1536_F80D8BC2-D4DC-47E7-A7AB-AFDF8ED26D0E.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/10/l_2048_1536_F80D8BC2-D4DC-47E7-A7AB-AFDF8ED26D0E.jpeg)
+[![](/img/2009/10/l_2048_1536_F80D8BC2-D4DC-47E7-A7AB-AFDF8ED26D0E.jpeg)](/img/2009/10/l_2048_1536_F80D8BC2-D4DC-47E7-A7AB-AFDF8ED26D0E.jpeg)
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/10/l_2048_1536_6AFC2BE3-27F6-4EC0-88E4-9AB3F189B6D4.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/10/l_2048_1536_6AFC2BE3-27F6-4EC0-88E4-9AB3F189B6D4.jpeg)
+[![](/img/2009/10/l_2048_1536_6AFC2BE3-27F6-4EC0-88E4-9AB3F189B6D4.jpeg)](/img/2009/10/l_2048_1536_6AFC2BE3-27F6-4EC0-88E4-9AB3F189B6D4.jpeg)
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/10/p_2048_1536_C12A342C-4FB9-4237-9492-D15EB1336BF7.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/10/p_2048_1536_C12A342C-4FB9-4237-9492-D15EB1336BF7.jpeg)
+[![](/img/2009/10/p_2048_1536_C12A342C-4FB9-4237-9492-D15EB1336BF7.jpeg)](/img/2009/10/p_2048_1536_C12A342C-4FB9-4237-9492-D15EB1336BF7.jpeg)
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/10/p_2048_1536_91C64B04-0925-4235-AFFB-C16C136E1B39.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/10/p_2048_1536_91C64B04-0925-4235-AFFB-C16C136E1B39.jpeg)
+[![](/img/2009/10/p_2048_1536_91C64B04-0925-4235-AFFB-C16C136E1B39.jpeg)](/img/2009/10/p_2048_1536_91C64B04-0925-4235-AFFB-C16C136E1B39.jpeg)
 
 So what about in flight entertainment? Well, like everyone else, Northwest has those built in TVs. Now, the only ones I've ever used before were Virgin America's, and that totally spoiled me. To say the least, god awful user interface, with an awfully designed controller. Tristan even managed to crash the system and cause it to reboot, revealing that it was running Linux.  Why is this important! It's not. There was a multiplayer trivia game that we tried playing, but no one would ever play with us :-/. Other than that, there were standard single player games, like bejeweled, solitaire, and mahjong, but, since the controller was so hard to use, they were practically unplayable. During the quiz game, after you answered a question, it would display a fun fact. Many of them were hilariously inane, for example, one of the answers to a question was "Dolly Parton." after the answer was revealed, the game thought than "we might find it interesting to know..." (that was the template) "...Dolly Par ton." *blank stare* what. I took a picture of another similar enlightening fact below.
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/10/l_2048_1536_A29C28E6-EE69-49EF-80FA-8DB4FF05B261.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/10/l_2048_1536_A29C28E6-EE69-49EF-80FA-8DB4FF05B261.jpeg)
+[![](/img/2009/10/l_2048_1536_A29C28E6-EE69-49EF-80FA-8DB4FF05B261.jpeg)](/img/2009/10/l_2048_1536_A29C28E6-EE69-49EF-80FA-8DB4FF05B261.jpeg)
 
 Alright, so games were a bust, what about movies? Well, amazingly enough they didn't skimp at all! There were about 20 great titles to choose from. I ended up watching wolverine (omg Hugh Jackman *drool*) and Tristan watched Star Trek. It would have been great except that I had to select movie four times before it would actually play it, instead of playing other movies at random.
 
@@ -60,7 +60,7 @@ Well, upon getting off the airplane, we took one thing at a time. First things f
 
 After immigration we got our luggage, went through customs, which went something like, "Hi, did you bring anything?" "No." "How long are you staying?" "Two weeks." "Ok, thanks, have fun." How on earth do they catch people? All of this was a no brainer. Now, after following the continually meandering hallways all through the airport, we finally made it to the exit area, and our real issues started. Guess what the first thing we saw was?
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/10/l_2048_1536_98A80CBB-FE1A-4FC9-BE0D-15F22765B12A.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/10/l_2048_1536_98A80CBB-FE1A-4FC9-BE0D-15F22765B12A.jpeg)
+[![](/img/2009/10/l_2048_1536_98A80CBB-FE1A-4FC9-BE0D-15F22765B12A.jpeg)](/img/2009/10/l_2048_1536_98A80CBB-FE1A-4FC9-BE0D-15F22765B12A.jpeg)
 
 Yeah. Bleh. Smells just as bad as the US ones. All burned up.
 
@@ -74,11 +74,11 @@ iPhone to the rescue! Compass app go! We find north, and start heading up the st
 
 Here was the first neon sign we saw!
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/10/p_2048_1536_0273ABD7-DB51-433E-81F8-78DE4E455AB0.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/10/p_2048_1536_0273ABD7-DB51-433E-81F8-78DE4E455AB0.jpeg)
+[![](/img/2009/10/p_2048_1536_0273ABD7-DB51-433E-81F8-78DE4E455AB0.jpeg)](/img/2009/10/p_2048_1536_0273ABD7-DB51-433E-81F8-78DE4E455AB0.jpeg)
 
 We leave the building, and find the park entrance, and see a huge temple arches thingy (I forget what they're called, I'm tired.... gate?) and there are literally 30-40 school kids, all wearing boys and girls uniforms, all around the grounds. "Getting off of school at 7 PM?" Tristan and I wonder. "It's so exciting! They're wearing uniforms, just like it's anime in real life ><," says me! It was pretty amazing seeing stuff that I've seen so long in an animated context actually being based in reality. All of them were taking pictures with their cell phone cameras, wandering around in segregated groups of boys and girls. It was really quite interesting.  We came to the temple, which was HUUUGE. I took a picture!
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/10/p_2048_1536_2995173F-25C5-474E-AD5C-7295DCE79A2B.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/10/p_2048_1536_2995173F-25C5-474E-AD5C-7295DCE79A2B.jpeg)
+[![](/img/2009/10/p_2048_1536_2995173F-25C5-474E-AD5C-7295DCE79A2B.jpeg)](/img/2009/10/p_2048_1536_2995173F-25C5-474E-AD5C-7295DCE79A2B.jpeg)
 
 It seems the hostile location I picked was in a great area. There were rows of streets with all sorts of street merchants out! Making delicious smelling food! Yum! I was soo hungry! But Tristan was tired, so we had to get to the hostile.
 

@@ -26,4 +26,4 @@ Sadly, it had the same 3d mode as war3 where you can pan down, but you can only 
 
 
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/08/p-2048-1536-aea20d9f-9081-4f8b-8466-f5905ff4a094.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/08/p-2048-1536-aea20d9f-9081-4f8b-8466-f5905ff4a094.jpeg)
+[![](/img/2009/08/p-2048-1536-aea20d9f-9081-4f8b-8466-f5905ff4a094.jpeg)](/img/2009/08/p-2048-1536-aea20d9f-9081-4f8b-8466-f5905ff4a094.jpeg)

@@ -14,7 +14,7 @@ tags:
 - blizzcon
 ---
 
-[![](http://www.kaynne.com/blog/wp-content/uploads/2009/08/p-2048-1536-ca68ce3d-e54f-4830-879c-bdf60163b138.jpeg)](http://www.kaynne.com/blog/wp-content/uploads/2009/08/p-2048-1536-ca68ce3d-e54f-4830-879c-bdf60163b138.jpeg)
+[![](/img/2009/08/p-2048-1536-ca68ce3d-e54f-4830-879c-bdf60163b138.jpeg)](/img/2009/08/p-2048-1536-ca68ce3d-e54f-4830-879c-bdf60163b138.jpeg)
 
 
 
